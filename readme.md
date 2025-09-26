@@ -1,1 +1,3 @@
+Desigualdade no Futebol
 
+O futebol reflete diversas desigualdades sociais, como a disparidade econômica entre clubes ricos e os de menor expressão, a falta de oportunidades para jovens de classes mais baixas e o racismo enfrentado por jogadores negros. Além disso, o futebol feminino sofre com salários baixos e pouca visibilidade. Essas desigualdades mostram como o esporte espelha as desigualdades sociais, e para mudar isso, é necessário um esforço para torná-lo mais justo e inclusivo.
